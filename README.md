@@ -4,7 +4,7 @@
 **Project Contributors:**
 
 1. Kritika Jha – Roll No. 37
-2. Nikita – Roll No. 50
+2. Nikita Singh – Roll No. 50
 
 **College:** Indira Gandhi Delhi Technical University for Women
 
